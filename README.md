@@ -1,5 +1,5 @@
 
-![https://github.com/AnonymousElite0](https://github.com/AnonymousElite0/AnonymoudElite0/blob/main/Blue%20Modern%20Corporate%20Staff%20Profile%20LinkedIn%20Banner.png)
+![https://github.com/AnonymousElite0](https://github.com/AnonymousElite0/AnonymousElite0/blob/main/Blue%20Modern%20Corporate%20Staff%20Profile%20LinkedIn%20Banner.png)
 
 
 ## Tecnologías:
